@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Rangeet Charoliya
+- 👀 I’m interested in standup comedy,learning new things and programming. 
+- 🌱 I’m currently learning BSc.IT
+- 💞️ I’m looking to collaborate on Video Editing, Arts
